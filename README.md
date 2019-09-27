@@ -3,6 +3,12 @@ Teaching anyone how to make a brunch burger
 The Brunch Burger
 
 
+Prep: 15 min
+Cook: 10-15 min
+Total: 25-30 min
+Servings: 1 Serving
+Total Cost: 
+
 Ingrediants
 
 Ground turkey https://www.instacart.com/shopping/products/2758206-shady-brook-farms-ground-turkey-1.3-lb?rid=495&utm_source=instacart_google&utm_medium=sem_shopping&utm_campaign=ad_demand_prospecting_shopping&ko_click_id=EAIaIQobChMI_7bC5ZLx5AIVh5yzCh2TrgLTEAkYAiABEgJc7fD_BwE&utm_source=instacart_google&utm_medium=paid_search_nonbrand&utm_campaign=ad_demand_shopping_food_ma_boston_newengen?ko_click_id=EAIaIQobChMI_7bC5ZLx5AIVh5yzCh2TrgLTEAkYAiABEgJc7fD_BwE&utm_medium=paid_search&utm_source=instacart_google&utm_campaign=ad_demand_prospecting&utm_term=&gclid=EAIaIQobChMI_7bC5ZLx5AIVh5yzCh2TrgLTEAkYAiABEgJc7fD_BwE price $4.95
