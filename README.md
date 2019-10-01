@@ -1,7 +1,7 @@
 # Recipe
 Teaching anyone how to make a brunch burger
 The Brunch Burger
-
+![Burger](./Burger.jpg)
 
 Prep: 15 min
 Cook: 10-15 min
