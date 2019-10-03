@@ -19,11 +19,11 @@ Butter (https://grocery.walmart.com/ip/Land-O-Lakes-Half-Stick-Salted-Butter-8-o
 Hamburger Buns
 
 Steps
-Mold ground turkey into a patty
-Place patty onto pan
-than crack egg onto another pan to fry
-Put the hashbrown into a oven to cook 
-(Optional) Toast the buns
+1. Mold ground turkey into a patty
+2. Place patty onto pan
+3. than crack egg onto another pan to fry
+4. Put the hashbrown into a oven to cook 
+5. (Optional) Toast the buns
 
 Assembling The Brunch Burger
 1. Grab the bottom bun 
