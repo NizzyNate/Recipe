@@ -37,3 +37,7 @@ Assembling The Brunch Burger
 4. Place the Hashbrown
 5. Place the fried egg 
 6. Place The Top bun
+
+Side Note 
+
+If you want to alter this in anyway go ahead and make your own brunch burger everyone has different taste
